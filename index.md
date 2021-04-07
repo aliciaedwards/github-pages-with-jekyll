@@ -1,5 +1,21 @@
-# Welcome to my blog
+Top 11 movie quotes
 
-I'm glad you are here. I plan to talk about ...
+1. “May the Force be with you.” -Star Wars, 1977
 
-Adding content as a test for now!
+2. “There's no place like home.” -The Wizard of Oz, 1939
+
+3. “I'm the king of the world!” -Titanic, 1997
+
+4. “Carpe diem. Seize the day, boys. Make your lives extraordinary.” -Dead Poets Society, 1989
+
+5. “Elementary, my dear Watson.” -The Adventures of Sherlock Holmes, 1939
+
+6. “It's alive! It's alive!” -Frankenstein, 1931
+
+7. “My mama always said life was like a box of chocolates. You never know what you're gonna get.” -Forrest Gump, 1994
+
+8. “I'll be back.” -The Terminator, 1984
+
+9. “You're gonna need a bigger boat.” -Jaws, 1975
+
+10. “Here's looking at you, kid.” -Casablanca,1942
