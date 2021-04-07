@@ -1,5 +1,7 @@
-title: 11 movie quotes you should know.
+---
+title: 11 Movie Quotes You Should Know
 date: 2021-04-07
+---
 
 1. “May the Force be with you.” -Star Wars, 1977
 
