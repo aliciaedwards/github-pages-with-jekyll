@@ -1,3 +1,6 @@
+title: 11 movie quotes you should know.
+date: 2021-04-07
+
 1. “May the Force be with you.” -Star Wars, 1977
 
 2. “There's no place like home.” -The Wizard of Oz, 1939
